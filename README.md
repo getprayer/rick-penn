@@ -41,3 +41,7 @@ Having a simple system helps build habits that last and keeps your focus where i
 ## 🙌 Stay Connected
 
 If you are looking to grow in faith through daily habits, reflection, and prayer, this is a simple place to begin.
+
+## 📌 Helpful Resources
+
+👉 https://get-prayer.com/free-april-2026-bullet-journal-pdf-download/
